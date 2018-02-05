@@ -1,37 +1,78 @@
-## Welcome to GitHub Pages
+# Editing Services
+Hone your craft, polish your message, keep your audience engaged 
 
-You can use the [editor on GitHub](https://github.com/LMKlein/LMKlein.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## Full Manuscript Critiques: Young Adult and Middle Grade 
 
-### Markdown
+You did it! You have a book—or something very near to being one. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+First of all--congratulations! You did something most people never accomplish, so fire off those confetti canons.
 
-```markdown
-Syntax highlighted code block
+If you’re here, it means that you’re ready to take the next step and dig deep into revisions. Maybe you’re starting to think about querying and want to strengthen the bones of your manuscript before you take the leap. Maybe you’ve already queried and racked up requests for fulls only to receive vague rejections. Or perhaps you want to give a specific manuscript a new chance, but the feedback you’ve gotten from critique partners and betas is pointing at a very different book than the one you want to write. Perhaps you’re pursuing self-publishing and need an editor’s eye before you take the next step. 
 
-# Header 1
-## Header 2
-### Header 3
+That’s where I come in.  
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+### What you get when you put your manuscript in my hands:
 
-[Link](url) and ![Image](src)
-```
+- Respect for your work from start to finish. As a writer myself, I critique the way I want to be critiqued: thorough, honest, enthusiastic, and tough.
+- Years of experience writing, revising, and editing under deadline, packaged with a positive, encouraging attitude
+- A full critique looking at macro and micro aspects of your novel
+- Line notes on the manuscript itself
+- After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, or share specific questions or concerns you have (Perfect when you’ve previously amassed vague or conflicting feedback)
+- A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
+- A discount on a second reading of the revised manuscript 
+- *Introductory rate, for a limited period:* .007USD per word, up to 85K. This includes PayPal fees—no hidden charges. For longer works, contact me at LMKleinedits@gmail.com 
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+Please note: Manuscript critiques are for **FULL middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts.  
 
-### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/LMKlein/LMKlein.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
+### Trying to choose between editors? Here’s a bit more about me. 
+- Contemporary, magical realism, fairy tale retellings, and urban fantasy are particularly my jam.  
+- I am especially strong with voice, character development, and plot logic. 
+- I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward the story you want to tell. 
+- I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories.
+- Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+
+
+### Testimonials
+I've collaborated with new and established authors as part of the YA writing community, and some of them were kind enough to share the experiences here. 
+
+_L.M. Klein is a talented and insightful editor whose invaluable feedback has helped me improve my work. Her careful attention to detail and in-depth notes make for a thorough critique, while her respect for my vision means I can trust her input. I’m so impressed with her ability to get at the heart of character motivations and to hone in on important plot points. Working with her has given me a clear view of next steps to take to complete my revision._ ~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
+
+_Laurel is a wonderful editor! Her prompt and regular communication let me know I was a priority throughout the time we worked together. Critique is never easy, but Klein showed me things in my book I didn't even know were there and helped me bring them out. She's the perfect editor to minimize weaknesses, showcase strengths, and renew your enthusiasm for your project. I absolutely recommend working with her. Get ready to fall in love with your novel all over again._ ~Kat Helgeson, author of SAY NO TO THE BRO (Simon and Schuster, 2017) and THE CATCH (Four of Us, 2018)
+
+_Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ ~Lindsay Lackey
+
+
+
+## Other Editing Services (not for manuscript-length works)
+
+### Proofreading (beginning at .005USD/word):
+Grammar cleanups ONLY for webpages, non-manuscript-length translation work, advertising copy, white papers, etc. This option is best suited to works on solid footing in regard to their content and presentation; no developmental or structural content review is included, and fact-checking is not provided. 
+
+I provide all changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before committing to your final draft. 
+
+
+
+### Line Edits (beginning at .007USD/word):
+I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
+
+This option is ideal for small business owners and entrepreneurs looking to punch up copy or to ensure they’ve appropriately broken down complex information for their audience. It’s also ideal for international clients looking to hone their English-language websites with the nuance offered by a native English-speaking editor and author. 
+
+I provide comments and changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before making revisions and committing to your final draft. If you make significant content changes, this option includes a re-read at a 50% discount to review your revisions and offer additional suggestions. 
+
+
+
+## CONTACT INFO
+Find me @LM_Klein on Twitter to get a sense of who I am.
+
+Please send all editing related correspondence to LMKleinEdits@gmail.com
+
+Please include a title, genre (if applicable), approximate word count, a brief description of the content, and your editing needs. If none of my services quite fit your project, send me a description and I will quote you a price if the project is a fit.
+
+Thank you for considering me, and I look forward to hearing from you!
+
