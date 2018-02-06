@@ -2,7 +2,7 @@
 Hone your craft, polish your message, engage your audience. 
 
 ## About Me
-I am former literature teacher with a Masters degree in curriculum and instruction, in addition to being an active ember of SCBWI and a member of the kidlit community. I love stories. I thrive on helping others find clarity during the challenging and sometimes messy process of turning an idea into a story, but I also enjoy the challenge of enhancing technical documents for clarity and readability. 
+I am former literature teacher with a Masters degree in curriculum and instruction, in addition to being an active member of SCBWI and a member of the kidlit community. I love stories. I thrive on helping others find clarity during the vital and sometimes messy process of turning an idea into a story, but I also enjoy the challenge of enhancing technical documents for clarity and readability. 
 
 If you don't see a service below that meets your project needs, contact me directly; I enjoy new challenges. 
 
@@ -70,8 +70,8 @@ Please note: Manuscript critiques are for **full middle grade or young adult man
 ### Trying to choose between editors? Here’s a bit more about me. 
 - Contemporary, magical realism, fairy tale retellings, and urban fantasy are particularly my jam.  
 - I am especially strong with voice, character development, and plot logic. 
-- I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward excavating the heart of your story. 
-- I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories.
+- I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward excavating the heart of your story.
+- I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories. 
 - Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
 
 
