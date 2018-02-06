@@ -47,9 +47,11 @@ _L.M. Klein is a talented and insightful editor whose invaluable feedback has he
 
 ~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
 
+
 _Laurel is a wonderful editor! Her prompt and regular communication let me know I was a priority throughout the time we worked together. Critique is never easy, but Klein showed me things in my book I didn't even know were there and helped me bring them out. She's the perfect editor to minimize weaknesses, showcase strengths, and renew your enthusiasm for your project. I absolutely recommend working with her. Get ready to fall in love with your novel all over again._ 
 
 ~Kat Helgeson, author of SAY NO TO THE BRO (Simon and Schuster, 2017) and THE CATCH (Four of Us, 2018)
+
 
 _Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ 
 
