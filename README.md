@@ -1,6 +1,8 @@
 # Editing Services
-Hone your craft, polish your message, keep your audience engaged 
+Hone your craft, polish your message, engage your audience 
 
+## About Me
+I am former literature teacher with a Masters degree in curriculum and instruction, in addition to being an active ember of SCBWI and a member of the kidlit community. I love stories, and I thrive on helping others find clarity during the challenging and sometimes messy process of turning an idea into a story. Originally from the US, I am recently relocated to Denmark.
 
 ## Full Manuscript Critiques: Young Adult and Middle Grade 
 
@@ -8,7 +10,7 @@ You did it! You have a book—or something very near to being one.
 
 First of all--congratulations! You did something most people never accomplish, so fire off those confetti canons.
 
-If you’re here, it means that you’re ready to take the next step and dig deep into revisions. Maybe you’re starting to think about querying and want to strengthen the bones of your manuscript before you take the leap. Maybe you’ve already queried and racked up requests for fulls only to receive vague rejections. Or perhaps you want to give a specific manuscript a new chance, but the feedback you’ve gotten from critique partners and betas is pointing at a very different book than the one you want to write. Perhaps you’re pursuing self-publishing and need an editor’s eye before you take the next step. 
+If you’re here, it means that you’re ready to take the next step and dig deep into revisions. Maybe you’re starting to think about querying and want to strengthen the bones of your manuscript before you take the leap. Maybe you’ve already queried and racked up requests for fulls only to receive vague rejections. Or perhaps you want to give a specific manuscript a new chance, but the feedback you’ve gotten from critique partners and betas is pointing at a very different book than the one you want to write. Maybe you’re pursuing self-publishing and need an editor’s eye before you take the next step. 
 
 That’s where I come in.  
 
@@ -23,16 +25,16 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, or share specific questions or concerns you have (Perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- *Introductory rate, for a limited period:* .007USD per word, up to 85K. This includes PayPal fees—no hidden charges. For longer works, contact me at LMKleinedits@gmail.com 
+- **Introductory rate, for a limited period:** .007USD per word, up to 85K. This includes PayPal fees—no hidden charges. For longer works, contact me at LMKleinedits@gmail.com 
 
-Please note: Manuscript critiques are for **FULL middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts.  
+Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts.  
 
 
 
 ### Trying to choose between editors? Here’s a bit more about me. 
 - Contemporary, magical realism, fairy tale retellings, and urban fantasy are particularly my jam.  
 - I am especially strong with voice, character development, and plot logic. 
-- I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward the story you want to tell. 
+- I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward excavating the heart of your story. 
 - I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories.
 - Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
 
@@ -41,11 +43,17 @@ Please note: Manuscript critiques are for **FULL middle grade or young adult man
 ### Testimonials
 I've collaborated with new and established authors as part of the YA writing community, and some of them were kind enough to share the experiences here. 
 
-_L.M. Klein is a talented and insightful editor whose invaluable feedback has helped me improve my work. Her careful attention to detail and in-depth notes make for a thorough critique, while her respect for my vision means I can trust her input. I’m so impressed with her ability to get at the heart of character motivations and to hone in on important plot points. Working with her has given me a clear view of next steps to take to complete my revision._ ~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
+_L.M. Klein is a talented and insightful editor whose invaluable feedback has helped me improve my work. Her careful attention to detail and in-depth notes make for a thorough critique, while her respect for my vision means I can trust her input. I’m so impressed with her ability to get at the heart of character motivations and to hone in on important plot points. Working with her has given me a clear view of next steps to take to complete my revision._ 
 
-_Laurel is a wonderful editor! Her prompt and regular communication let me know I was a priority throughout the time we worked together. Critique is never easy, but Klein showed me things in my book I didn't even know were there and helped me bring them out. She's the perfect editor to minimize weaknesses, showcase strengths, and renew your enthusiasm for your project. I absolutely recommend working with her. Get ready to fall in love with your novel all over again._ ~Kat Helgeson, author of SAY NO TO THE BRO (Simon and Schuster, 2017) and THE CATCH (Four of Us, 2018)
+~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
 
-_Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ ~Lindsay Lackey
+_Laurel is a wonderful editor! Her prompt and regular communication let me know I was a priority throughout the time we worked together. Critique is never easy, but Klein showed me things in my book I didn't even know were there and helped me bring them out. She's the perfect editor to minimize weaknesses, showcase strengths, and renew your enthusiasm for your project. I absolutely recommend working with her. Get ready to fall in love with your novel all over again._ 
+
+~Kat Helgeson, author of SAY NO TO THE BRO (Simon and Schuster, 2017) and THE CATCH (Four of Us, 2018)
+
+_Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ 
+
+~Lindsay Lackey
 
 
 
@@ -65,7 +73,10 @@ This option is ideal for small business owners and entrepreneurs looking to punc
 
 I provide comments and changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before making revisions and committing to your final draft. If you make significant content changes, this option includes a re-read at a 50% discount to review your revisions and offer additional suggestions. 
 
+### Classroom Study Guides 
+I am interested in partnering with YA and MG authors to develop classroom guides for your contracted or published novels. Having worked in both classrooms and curriculum development for nearly twenty years, I am comfortable developing engaging questions and activity suggestions aligned to the Common Core to help students and educators dive deep into your text.
 
+Contact me for rates.
 
 ## CONTACT INFO
 Find me @LM_Klein on Twitter to get a sense of who I am.
