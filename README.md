@@ -1,5 +1,5 @@
 # Editing Services
-Hone your craft, polish your message, engage your audience. 
+_Hone your craft, polish your message, engage your audience._ 
 
 ## About Me
 I am former literature teacher with a Masters degree in curriculum and instruction, in addition to being an active member of SCBWI and a member of the kidlit community. I love stories. I thrive on helping others find clarity during the vital and sometimes messy process of turning an idea into a story, but I also enjoy the challenge of enhancing technical documents for clarity and readability. 
@@ -16,14 +16,20 @@ _L.M. Klein is a talented and insightful editor whose invaluable feedback has he
 ~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
 
 
+
+
 _Laurel is a wonderful editor! Her prompt and regular communication let me know I was a priority throughout the time we worked together. Critique is never easy, but Klein showed me things in my book I didn't even know were there and helped me bring them out. She's the perfect editor to minimize weaknesses, showcase strengths, and renew your enthusiasm for your project. I absolutely recommend working with her. Get ready to fall in love with your novel all over again._ 
 
 ~Kat Helgeson, author of SAY NO TO THE BRO (Simon and Schuster, 2017) and THE CATCH (Four of Us, 2018)
 
 
+
+
 _Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ 
 
 ~Lindsay Lackey, editor, writer, and book reviewer
+
+
 
 
 _If you have an opportunity to employ Laurel do so immediately, so you don’t miss out on having a great talent on your team._
