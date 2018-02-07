@@ -9,9 +9,7 @@ If you don't see a service below that meets your project needs, contact me direc
 
 
 ### Testimonials
-As part of the YA writing community, I've collaborated with new and established authors. In my educational work, I've had the opportunity to tackle a variety of writing and editing projects with various educational and non-profit organizations. Some of my partners were kind enough to share their experiences here. 
-<details>
- <summary>click here for testimonials</summary>
+As part of the YA writing community, I've collaborated with new and established authors. In my educational work, I've had the opportunity to tackle a variety of writing and editing projects with various educational and non-profit organizations. Some of my partners were kind enough to share their experiences here.
 
 
 
@@ -46,9 +44,6 @@ _In addition, it is a true pleasure to work with Laurel. She has a great persona
 
 ~Kathleen Meehan Coop, as Vice president of Education at the Challenger Center for Space Science Education
 
-</details>
-
-
 
 
 
@@ -65,8 +60,6 @@ If you’re here, it means that you’re ready to take the next step and dig dee
 That’s where I come in.  
 
 
-<details>
- <summary>click here for details and rates</summary>
 
 ### What you get when you put your manuscript in my hands:
 
@@ -92,23 +85,19 @@ Please note: Manuscript critiques are for **full middle grade or young adult man
 - I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories. 
 - Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
 
-</details>
+
 
 ## Other Editing Services (not for manuscript-length works)
 
 ### Proofreading (beginning at .005USD/word):
-<details>
- <summary>click here for details and rates</summary>
 
 Grammar cleanups ONLY for webpages, non-manuscript-length translation work, advertising copy, white papers, etc. This option is best suited to works on solid footing in regard to their content and presentation; no developmental or structural content review is included, and fact-checking is not provided. 
 
 I provide all changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before committing to your final draft. 
 
-</details>
+
 
 ### Line Edits (beginning at .007USD/word):
-<details>
- <summary>click here for details and rates</summary>
 
 I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
 
@@ -116,16 +105,12 @@ This option is ideal for small business owners and entrepreneurs looking to punc
 
 I provide comments and changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before making revisions and committing to your final draft. If you make significant content changes, this option includes a re-read at a 50% discount to review your revisions and offer additional suggestions. 
 
-</details>
 
 ### Classroom Study Guides 
-<details>
-<summary>click here for details</summary>
 
 I am interested in partnering with YA and MG authors to develop classroom guides for your contracted or published novels. Having worked in both classrooms and curriculum development for nearly twenty years, I am comfortable developing engaging questions and activity suggestions aligned to the Common Core to help students and educators dive deep into your text.
 
 Contact me for rates.
-</details>
 
 ## CONTACT INFO
 Find me @LM_Klein on Twitter to get a sense of who I am.
