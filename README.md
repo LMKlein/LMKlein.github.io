@@ -42,7 +42,7 @@ _Laurel is the complete package -- smart, imaginative, and resourceful. She is a
 
 _In addition, it is a true pleasure to work with Laurel. She has a great personality and is fun to work with. I wouldn’t hesitate to hire her again._  
 
-~Kathleen Meehan Coop, as Vice president of Education at the Challenger Center for Space Science Education_
+~Kathleen Meehan Coop, as Vice president of Education at the Challenger Center for Space Science Education
 
 
 
