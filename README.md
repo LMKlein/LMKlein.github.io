@@ -71,7 +71,7 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Introductory rate, for a limited period:** .007USD per word, up to 85K, for US clients. This includes PayPal fees—no hidden charges, though EU-based clients will be subject to VAT. For longer works, contact me at LMKleinedits@gmail.com 
+- **Introductory rate, for a limited period:** starting at .007USD per word, up to 85K, for US clients. This includes PayPal fees—no hidden charges, though EU-based clients will be subject to VAT. For longer works, contact me at LMKleinedits@gmail.com 
 
 **If you connected with me at a conference,** contact me. Special discounted rates or packages may apply. 
 
