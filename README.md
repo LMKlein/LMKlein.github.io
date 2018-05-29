@@ -71,7 +71,7 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Introductory rate, for a limited period:** starting at .007USD per word, up to 85K, for US clients. This includes PayPal fees—no hidden charges, though EU-based clients will be subject to VAT. For longer works, contact me at LMKleinedits@gmail.com 
+- **Introductory rate, for a limited period:** starting at .008USD per word, up to 85K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that this rate does not  include PayPal fees, for which the cient will also assume responsibility. As I am based in Denmark, EU-based clients will be subject to VAT. 
 
 **If you connected with me at a conference,** contact me. Special discounted rates or packages may apply. 
 
@@ -90,7 +90,7 @@ Please note: Manuscript critiques are for **full middle grade or young adult man
 
 ## Other Editing Services (not for manuscript-length works)
 
-### Proofreading (beginning at .005USD/word for US clients; note that EU clients will be subject to VAT):
+### Proofreading (beginning at .007USD/word for US clients, plus PayPal fees; note that EU clients will be subject to VAT):
 
 Grammar cleanups ONLY for webpages, non-manuscript-length translation work, advertising copy, white papers, etc. This option is best suited to works on solid footing in regard to their content and presentation; no developmental or structural content review is included, and fact-checking is not provided. 
 
@@ -98,7 +98,7 @@ I provide all changes in Word with track changes enabled (and an explanation whe
 
 
 
-### Line Edits (beginning at .007USD/word for US clients; note that EU clients will be subject to VAT):
+### Line Edits (beginning at .009USD/word for US clients, plus PayPal fees; note that EU clients will be subject to VAT):
 
 I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
 
