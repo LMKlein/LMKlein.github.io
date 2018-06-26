@@ -102,7 +102,7 @@ I provide all changes in Word with track changes enabled (and an explanation whe
 
 I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
 
-This option is ideal for small business owners and entrepreneurs looking to punch up copy or to ensure they’ve appropriately broken down complex information for their audience. It’s also ideal for international clients looking to hone their English-language websites with the nuance offered by a native English-speaking editor and author. 
+This option is ideal for small business owners and entrepreneurs looking to punch up copy or to ensure they’ve appropriately broken down complex information for their audience. It’s also ideal for international clients looking to hone their English-language websites with the nuance offered by an editor and author with native English fluency. 
 
 I provide comments and changes in Word with track changes enabled (and an explanation when necessary) so that you can review individual items before making revisions and committing to your final draft. If you make significant content changes, this option includes a re-read at a 50% discount to review your revisions and offer additional suggestions. 
 
