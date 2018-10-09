@@ -2,14 +2,14 @@
 _Hone your craft, polish your message, engage your audience._ 
 
 ## About Me
-I am a former literature teacher with a Masters degree in curriculum and instruction, in addition to being an active member of SCBWI and a member of the kidlit community. I love stories. I thrive on helping others find clarity during the vital and sometimes messy process of turning an idea into a story, but I also enjoy the challenge of enhancing technical documents for clarity and readability. 
+I am a former literature teacher with a master's degree in curriculum and instruction, in addition to being an active member of SCBWI and a member of the kidlit community. I love stories. I thrive on helping others find clarity during the vital and sometimes messy process of turning an idea into a story, but I also enjoy the challenge of enhancing technical documents for clarity and readability. 
 
 If you don't see a service below that meets your project needs, contact me directly; I enjoy new challenges. 
 
 
 
 ### Testimonials
-As part of the YA writing community, I've collaborated with new and established authors. In my educational work, I've had the opportunity to tackle a variety of writing and editing projects with various educational and non-profit organizations. Some of my partners were kind enough to share their experiences here.
+As part of the YA writing community, I've collaborated with new and established authors. In my educational work, I've had the opportunity to tackle a variety of writing and editing projects with various educational and non-profit organizations. Some of my collaborators were kind enough to share their experiences here.
 
 
 
@@ -56,7 +56,7 @@ You did it! You have a book—or something very near to being one.
 
 First of all--congratulations! You did something most people never accomplish, so fire off those confetti canons.
 
-If you’re here, it means that you’re ready to take the next step and dig deep into revisions. Maybe you’re starting to think about querying and want to strengthen the bones of your manuscript before you take the leap. Maybe you’ve already queried and racked up requests for fulls only to receive vague rejections. Or perhaps you want to give a specific manuscript a new chance, but the feedback you’ve gotten from critique partners and betas is pointing at a very different book than the one you want to write. Maybe you’re pursuing self-publishing and need an editor’s eye before you take the next step. 
+If you’re here, it means that you’re ready to take the next step and dig deep into revisions. Maybe you’re starting to think about querying and want to strengthen the bones of your manuscript before you take the leap. Maybe you’ve already queried and racked up requests for fulls only to receive vague rejections. Or perhaps you want to give a specific manuscript a new chance, but the feedback you’ve gotten from critique partners, betas, or even editors is pointing at a very different book than the one you want to write. Maybe you’re pursuing self-publishing and need an editor’s eye before you take the next step. 
 
 That’s where I come in.  
 
@@ -71,11 +71,11 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Introductory rate, for a limited period:** starting at $800USD, up to 80K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
+- **Introductory rate, for a limited time:** starting at $800USD, up to 80K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
 
-**If you connected with me at a conference,** contact me. Special discounted rates or packages may apply. 
+**If you connected with me at a conference, or you were referred to me by one of my previous clients** contact me. Special rates or packages may apply, depending on your needs. 
 
-Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts.  
+Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts. However, if you're drafting and stuck, send me an email and we can talk about options.   
 
 
 
@@ -85,7 +85,7 @@ Please note: Manuscript critiques are for **full middle grade or young adult man
 - I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward excavating the heart of your story.
 - I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories. 
 - Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
-
+- I'm currently offering a much fuller critique package than most (edit letter, in-line notes, and a back-and-forth where we sift through previous feedback together and strategize solutions). I am a problem-solver by nature, and I thrive on helping others take their creative work to the next level. As a result, my process is collborative, and it centers your vision for the MS while offering perspective on external factors that should be taken into consideration. TL;DR: I **want** you to succeed, and my feedback is always aimed at improving your mastery of craft beyond any single project.  
 
 
 ## Other Editing Services (not for manuscript-length works)
