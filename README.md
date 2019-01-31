@@ -71,9 +71,9 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Introductory rate, for a limited time:** starting at $800USD, up to 80K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
+- **Special #2019GOALS Kickoff Price, for a limited time:** starting at $550USD, up to 75K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
 
-**If you connected with me at a conference, or you were referred to me by one of my previous clients** contact me. Special rates or packages may apply, depending on your needs. 
+**If you connected with me at a conference, or you were referred to me by one of my previous clients** contact me. Special rates or packages may apply. And please know that although this level of support allows me to provide the most effective level of feedback to authors, **I am able to customize support for a variety of budgets.** Just send me a message.
 
 Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts. However, if you're drafting and stuck, send me an email and we can talk about options.   
 
@@ -85,7 +85,7 @@ Please note: Manuscript critiques are for **full middle grade or young adult man
 - I bring years of writing and editing experience to your manuscript, as well as a careful eye toward the story you want to tell. I will ask about your vision and your characters, so that my feedback can fast-track you toward excavating the heart of your story.
 - I believe the world needs diverse books, and that #ownvoices authors should be prioritized in the telling of those stories. 
 - Although I don’t offer proofreading for manuscripts, I have a strong eye for grammar and syntax and will note significant issues in passing.
-- I'm currently offering a much fuller critique package than most (edit letter, in-line notes, and a back-and-forth where we sift through previous feedback together and strategize solutions). I am a problem-solver by nature, and I thrive on helping others take their creative work to the next level. As a result, my process is collborative, and it centers your vision for the MS while offering perspective on external factors that should be taken into consideration. TL;DR: I **want** you to succeed, and my feedback is always aimed at improving your mastery of craft beyond any single project.  
+- I'm currently offering a much fuller critique package than most (edit letter, in-line notes, and a back-and-forth where we sift through previous feedback together and strategize solutions). I am a problem-solver by nature, and I thrive on helping others take their creative work to the next level. As a result, my process is collborative, and it centers your vision for the MS while offering perspective on external factors that should be taken into consideration. TL;DR: I **want** you to succeed, and my feedback is always aimed at improving your mastery of craft beyond any single project. I can't guarantee you'll land this project with an agent or a publisher; I can guarantee you will acquire insights and tools to take this--and future works--to a new level.  
 
 
 ## Other Editing Services (not for manuscript-length works)
@@ -118,7 +118,7 @@ Find me @LM_Klein on Twitter to get a sense of who I am.
 
 Please send all editing related correspondence to LMKleinEdits@gmail.com
 
-Please include a title, genre (if applicable), approximate word count, a brief description of the content, and your editing needs. If none of my services quite fit your project, send me a description and I will quote you a price if the project is a fit.
+Please include a title, genre (if applicable), approximate word count, a brief description of the content, and your editing needs. If none of my services quite match your project, send me a description and I will quote you a price if the project is a fit.
 
 Thank you for considering me, and I look forward to hearing from you!
 
