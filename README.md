@@ -73,7 +73,7 @@ That’s where I come in.
 - A discount on a second reading of the revised manuscript 
 - **Special #2019GOALS Kickoff Price, for a limited time:** starting at $550USD, up to 75K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
 
-**If you connected with me at a conference, or you were referred to me by one of my previous clients** contact me. Special rates or packages may apply. And please know that although this level of support allows me to provide the most effective level of feedback to authors, **I am able to customize support for a variety of budgets.** Just send me a message.
+**If you connected with me at a conference, or you were referred to me by one of my previous clients,** contact me. Special rates or packages may apply. And please know that although this level of support allows me to provide the most effective level of feedback to authors, **I am able to customize support for a variety of budgets.** Just send me a message.
 
 Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts. However, if you're drafting and stuck, send me an email and we can talk about options.   
 
