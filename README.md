@@ -29,7 +29,7 @@ _Laurel is a wonderful editor! Her prompt and regular communication let me know 
 
 _Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ 
 
-~Lindsay Lackey, represented by Elena Giovinazzo of Pippin Properties. Forthcoming author of ALL THE IMPOSSIBLE THINGS (Roaring Brook Press/Macmillan 2019)
+~Lindsay Lackey, forthcoming author of ALL THE IMPOSSIBLE THINGS (Roaring Brook Press/Macmillan, September 2019)
 
 
 
@@ -71,7 +71,7 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Special #2019GOALS Kickoff Price, for a limited time:** starting at $550USD, up to 75K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
+- **Base price for a developmental edit with both line notes and edit letter** starting at $600USD, up to 75K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
 
 **If you connected with me at a conference, or you were referred to me by one of my previous clients,** contact me. Special rates or packages may apply. And please know that although this level of support allows me to provide the most effective level of feedback to authors, **I am able to customize support for a variety of budgets.** Just send me a message.
 
