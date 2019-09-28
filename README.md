@@ -15,7 +15,7 @@ As part of the YA writing community, I've collaborated with new and established 
 
 _L.M. Klein is a talented and insightful editor whose invaluable feedback has helped me improve my work. Her careful attention to detail and in-depth notes make for a thorough critique, while her respect for my vision means I can trust her input. I’m so impressed with her ability to get at the heart of character motivations and to hone in on important plot points. Working with her has given me a clear view of next steps to take to complete my revision._ 
 
-~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016) and THE ECHO ROOM (Tor Teen, 2018)
+~Parker Peevyhouse, author of WHERE FUTURES END (Penguin/Dawson, 2016), THE ECHO ROOM (Tor Teen, 2018), and STRANGE EXIT (coming January 2020)
 
 
 
@@ -29,7 +29,7 @@ _Laurel is a wonderful editor! Her prompt and regular communication let me know 
 
 _Laurel is one of the most talented editors with whom I have ever worked. She is incredibly adept at helping a writer dig more deeply into character, and is capable of drawing out a writer's best and richest work. She is not an editor who cleans up punctuation and messy wording (though she can). She is one who teases out the true heart of your story--character motivations, plot intricacies, honesty of voice, and beautiful prose. Laurel will empower you to make your writing stronger. She'll push you to craft a more compelling story. Her high standards and strong instincts were a game-changer for me in my own manuscript. I simply cannot recommend her enough! You won't find a better partner for your work in the freelance world._ 
 
-~Lindsay Lackey, forthcoming author of ALL THE IMPOSSIBLE THINGS (Roaring Brook Press/Macmillan, September 2019)
+~Lindsay Lackey, author of ALL THE IMPOSSIBLE THINGS (Roaring Brook Press/Macmillan)
 
 
 
