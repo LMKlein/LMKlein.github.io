@@ -71,7 +71,7 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Base price for a developmental edit with both line notes and edit letter** starting at $600USD, up to 75K, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
+- **Base price for a developmental edit with both line notes and edit letter** starting at $600USD, up to 75K words, for US clients. (For longer works, contact me at LMKleinedits@gmail.com) Please note that EU-based clients will be subject to VAT. 
 
 **If you connected with me at a conference, or you were referred to me by one of my previous clients,** contact me. Special rates or packages may apply. And please know that although this level of support allows me to provide the most effective level of feedback to authors, **I am able to customize support for a variety of budgets.** Just send me a message.
 
