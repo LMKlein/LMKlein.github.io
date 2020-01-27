@@ -24,12 +24,5 @@ I am interested in partnering with YA and MG authors to develop classroom guides
 
 Contact me for rates.
 
-## CONTACT INFO
-Find me @LM_Klein on Twitter to get a sense of who I am.
 
-Please send all editing related correspondence to LMKleinEdits@gmail.com
-
-Please include a title, genre (if applicable), approximate word count, a brief description of the content, and your editing needs. If none of my services quite match your project, send me a description and I will quote you a price if the project is a fit.
-
-Thank you for considering me, and I look forward to hearing from you!
 
