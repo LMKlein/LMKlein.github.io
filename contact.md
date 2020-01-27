@@ -2,7 +2,7 @@
 |-----------------|---------------------|-----------------------------|--------------------------------------|-------------------------------|---------------------|
 
 
-## CONTACT INFO
+# Contact Info
 Find me @LM_Klein on Twitter to get a sense of who I am.
 
 Please send all editing related correspondence to LMKleinEdits@gmail.com
