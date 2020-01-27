@@ -2,9 +2,9 @@
 |-----------------|---------------------|-----------------------------|--------------------------------------|-------------------------------|---------------------|
 
 
-# Services Offered
+# Editing Services 
 
-## Full Manuscript Critiques: Young Adult and Middle Grade 
+## Full Manuscript Critiques: Young Adult & Middle Grade 
 
 You did it! You have a book—or something very near to being one. 
 
