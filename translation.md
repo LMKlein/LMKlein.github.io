@@ -1,5 +1,7 @@
-|[About](about.md)|[Editing](editing.md)|[Translation](translation.md)|[Classroom Study Guides](education.md)|[Testimonials](testimonials.md)|[Contact](contact.md)|
+
+|[About](index.md)|[Editing](editing.md)|[Translation](translation.md)|[Classroom Study Guides](education.md)|[Testimonials](testimonials.md)|[Contact](contact.md)|
 |-----------------|---------------------|-----------------------------|--------------------------------------|-------------------------------|---------------------|
+
 
 
 # Translation Services
