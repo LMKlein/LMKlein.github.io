@@ -5,7 +5,7 @@
 # Testimonials
 As part of the YA writing community, I've collaborated with new and established authors. In my educational work, I've had the opportunity to tackle a variety of writing and editing projects with various educational and non-profit organizations. Some of my collaborators were kind enough to share their experiences here.
 
-
+<br/>
 
 > _L.M. Klein is a talented and insightful editor whose invaluable feedback has helped me improve my work. Her careful attention to detail and in-depth notes make for a thorough critique, while her respect for my vision means I can trust her input. I’m so impressed with her ability to get at the heart of character motivations and to hone in on important plot points. Working with her has given me a clear view of next steps to take to complete my revision._ 
 
