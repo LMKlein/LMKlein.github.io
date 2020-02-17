@@ -28,7 +28,7 @@ As part of the YA writing community, I've collaborated with new and established 
 
 <br/>
 
-> _If you have an opportunity to employ Laurel do so immediately, so you don’t miss out on having a great talent on your team._
+> _If you have an opportunity to employ L.M. do so immediately, so you don’t miss out on having a great talent on your team._
 > 
 > _I hired L.M. as an education consultant to help with an interactive learning experience project that I inherited that was severely off scope, budget and timeline. L.M. was a tremendous asset in getting that project back on track and completed. She understood the challenges of the national office, worked well with the subject matter experts to clearly communicate the content, and listened carefully to the needs and varying desires of our community users. Her balanced and creative approach allowed her to develop innovative solutions that ensured we launched a software program that our education network was proud to use._
 > 
