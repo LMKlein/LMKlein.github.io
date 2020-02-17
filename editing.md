@@ -56,7 +56,7 @@ Note: Pages must be submitted in standard manuscript format: 1" margins, 12 pt T
 
 
 ### Lifeline Developmental Edits (rates dependant on needs; contact me for details)
-This is for the messy unfinished drafts, the exasperating ones, the exasperating and infuriating ones that you are still madly in love with and cannot abandon. 
+This is for the messy unfinished drafts, the exasperating and infuriating ones that you are still madly in love with and cannot abandon. 
 
 Let's talk. I'll help you develop a detailed plan forward.
 
@@ -70,7 +70,7 @@ I provide all changes in Word with track changes enabled (and an explanation whe
 
 
 
-### Line Edits (beginning at $50USD/hr for US clients; ote that EU clients and US clients without tax-exempt status will be subject to 25% VAT):
+### Line Edits (beginning at $50USD/hr for US clients; note that EU clients and US clients without tax-exempt status will be subject to 25% VAT):
 
 I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
 
