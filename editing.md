@@ -27,11 +27,11 @@ That’s where I come in.
 - After I read but before I send you feedback: An email exchange where you have the opportunity to outline critique partner or agent feedback, and to share specific questions or concerns you have (perfect when you’ve previously amassed vague or conflicting feedback)
 - A detailed editorial letter pointing out strengths and areas to further develop, suggestions for next steps, and thoughts on past feedback you chose to share with me
 - A discount on a second reading of the revised manuscript 
-- **Base price for a developmental edit with both line notes and edit letter** for Spring 2020, starting at $500USD, up to 80K words. (For longer works, contact me at LMKleinedits@gmail.com) EU-based clients and individuals without tax-exempt status will be subject to 25% VAT.  
+- **Base price for a developmental edit with both line notes and edit letter** for Summer 2020, starting at $600USD, up to 80K words. (For longer works, contact me at LMKleinedits@gmail.com) EU-based clients and individuals without tax-exempt status will be subject to 25% VAT.  
 
 This level of support allows me to provide the most effective level of feedback to authors. If, however, that's out of your budget, do feel free to reach out regardless, as **we can discuss customized levels of support for a variety of budgets.** I want you to grow as a writer, but we can determine together what that looks like at this time.
 
-**If you connected with me at a conference, or you were referred to me by one of my previous clients,** contact me. Special discounts may apply. **February 2020: All WriteOnCon 2020 attendees receive 10% off services when booking before 1 April 2020.**
+**If you connected with me at a conference, or you were referred to me by one of my previous clients,** contact me. Special discounts may apply. 
 
 Please note: Manuscript critiques are for **full middle grade or young adult manuscripts.** No picture books, poetry, short stories, or partial manuscripts. However, if you're drafting and stuck, send me an email and we can talk about other options.   
 
@@ -62,7 +62,7 @@ Let's talk. I'll help you develop a detailed plan forward.
 
 
 
-### Proofreading (beginning at $40USD/hr; note that EU clients and US clients without tax-exempt status will be subject to 25% VAT):
+### Proofreading (rates dependant on needs; contact me for details)
 
 Grammar cleanups ONLY for webpages, non-manuscript-length translation work, advertising copy, white papers, etc. This option is best suited to works on solid footing in regard to their content and presentation; no developmental or structural content review is included, and fact-checking is not provided. 
 
@@ -70,7 +70,7 @@ I provide all changes in Word with track changes enabled (and an explanation whe
 
 
 
-### Line Edits (beginning at $50USD/hr for US clients; note that EU clients and US clients without tax-exempt status will be subject to 25% VAT):
+### Line Edits (rates dependant on needs; contact me for details)
 
 I offer an eye toward the presentation and organization of content for webpages, articles, and other documents, as well as necessary grammar and syntax fixes. I leverage my background in curriculum and instruction to help you identify ways to effectively move your readers through information and draw their eyes where they need to be. 
 
